@@ -1,1 +1,1 @@
-"# teste" 
+>> Como usar o GIT

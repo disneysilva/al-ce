@@ -1,2 +1,2 @@
 >> Como usar o GIT
-foda-se
+Go give your ... end back hole
